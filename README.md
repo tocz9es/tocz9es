@@ -1,4 +1,4 @@
-Front-End Developer. Major in IMIS. Already graduated.
+Front-End Developer.
 
 "A foolish Coder. Writing lines without mind."
 
